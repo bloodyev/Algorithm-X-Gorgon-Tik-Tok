@@ -6,5 +6,5 @@ X-Khronos: 1582898273
 
 # More details
 
-### Telegram @tiktokpeppa
+### Telegram @enoughowl10
 ### Skype - live:.cid.b7d7ced6e23d0c41
