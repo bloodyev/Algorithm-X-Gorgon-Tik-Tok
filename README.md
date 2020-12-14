@@ -1,3 +1,2 @@
 # Algorithm-X-Gorgon
-# More details
-### telegram - @zver7777
+### skype - live:.cid.8e129461a4e880f7
