@@ -1,2 +1,3 @@
 # Algorithm-X-Gorgon
-### skype - live:.cid.8e129461a4e880f7
+## Skype - live:.cid.8e129461a4e880f7
+## Telegram @zver7777
